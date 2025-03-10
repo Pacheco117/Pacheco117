@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Pacheco117 also know as Checo
-- 👀 I’m interested in ... Videogames
 - 📫 How to reach me ...Discord:Chec0117#0103
 
 <!---
